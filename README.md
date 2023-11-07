@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SnmzOnurcan.
+- 👀 I’m interested in Software.
+- 🌱 I’m currently learning computer programming.
+- 
+- 📫 How to reach me :onur_snmz8161@hotmail.com
